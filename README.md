@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @jtaylormade, I'm a masters student at University of Waterloo doing Physics research. 
+- 👋 Hi, I’m @jtaylormade, I'm a PhD student at University of Maryland doing Physics research. 
